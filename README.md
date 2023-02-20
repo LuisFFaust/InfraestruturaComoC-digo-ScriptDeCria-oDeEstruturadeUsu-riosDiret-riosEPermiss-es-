@@ -1,0 +1,1 @@
+# InfraestruturaComoC-digo-ScriptDeCria-oDeEstruturadeUsu-riosDiret-riosEPermiss-es-
